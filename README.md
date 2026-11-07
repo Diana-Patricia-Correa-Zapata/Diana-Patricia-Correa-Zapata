@@ -2,8 +2,8 @@ DIANA PATRICIA CORREA ZAPATA
 
 Perfil Profesional
 Contadora Pública y especialista en Legislación Tributaria y Aduanera, con sólida experiencia en el área contable, financiera y de impuestos para personas naturales y jurídicas. Complemento mi perfil con estudios en Ingeniería de Software, aportando una visión analítica y tecnológica para la optimización de procesos. Con alto sentido de la responsabilidad, ética y capacidad para la toma de decisiones financieras y cumplimiento normativo.
-Educación
 
+Educación
 •	Contaduría Pública
 Corporación Universitaria Remington, Manizales | 2014 – 2018
 •	Especialización en Legislación Tributaria y Aduanera
